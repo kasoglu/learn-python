@@ -1,0 +1,1 @@
+# Bu derste işlenennler Udemy'de mevcut çok önemli olmadığı için not almadım. 
